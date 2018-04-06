@@ -4,4 +4,4 @@ Voor meer informatie kunt u mailen naar: Fekke.Fekkes@student.stenden.com
 
 
 All documents are only available in Dutch. 
-For more information send an E-mail to: Fekke.Fekkes@student.stenden.com.
+For more information, please send a Email to: Fekke.Fekkes@student.stenden.com.
